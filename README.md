@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Orga-Itsuka,A graduating college student,looking for a work.  
+- 👋 Hi, I’m @Orga-Itsuka,
    |  
  ₘₙⁿ  
 ▏n  
